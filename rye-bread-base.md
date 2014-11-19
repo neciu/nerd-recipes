@@ -9,3 +9,5 @@
 ## Recipe
 1. Mix water with leaven carefuly.
 2. Add flour and mix it as well.
+
+I suggest leaving 250g of base. Put it in a cooler for max one week and start process once again.
